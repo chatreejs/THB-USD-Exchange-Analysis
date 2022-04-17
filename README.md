@@ -1,0 +1,1 @@
+# THB-USD-Exchange-Analysis
